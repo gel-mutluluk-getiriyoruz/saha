@@ -1,1 +1,1 @@
-[Bağlantı metni](https://ornek-link.com)
+[🔗Bağlantı metni](https://ornek-link.com)
