@@ -1,8 +1,8 @@
-# [Sahabet.com](https://ornek-link.com)
+## [Sahabet.com](https://ornek-link.com)
 
-## TIKLA VE GİRİŞ YAP
+## [TIKLA VE GİRİŞ YAP](https://ornek-link.com)
 
-[![Sahabet](https://ornek-resim-linki.com/sahabet.png)](https://ornek-link.com)
+[![Sahabet]([https://ornek-resim-linki.com/sahabet.png](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR67qA5wOb70nK-QyrRdHgExmEly6IYtMuItw&s))](https://ornek-link.com)
 
 - ✅ Yüksek RTP oranlarıyla daha fazla kazanma şansı!
 - 🎁 Özel bonuslar ve bedava döndürme fırsatları!
