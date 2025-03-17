@@ -1,1 +1,1 @@
-deneme.com
+[Bağlantı metni](https://ornek-link.com)
