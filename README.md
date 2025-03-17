@@ -2,7 +2,8 @@
 
 # [TIKLA VE GİRİŞ YAP](https://ornek-link.com)
 
-![download](https://github.com/user-attachments/assets/c7e6ccdc-7647-4236-902f-f5abcdbf1a2c)
+![download](https://github.com/user-attachments/assets/f9eca3c8-008a-4826-87b7-2094d5b25063)
+
 
 - ✅ Yüksek RTP oranlarıyla daha fazla kazanma şansı!
 - 🎁 Özel bonuslar ve bedava döndürme fırsatları!
